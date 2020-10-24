@@ -1,2 +1,0 @@
-
-joeyparassantiago.github.io
